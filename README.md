@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CHETHAN G
 - 👀 I’m interested in technology 
-- 🌱 I’m currently learning b. Tech
+- 🌱 I’m currently pursuing b. Tech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
